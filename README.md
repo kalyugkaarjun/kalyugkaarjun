@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kalyugkaarjun
+- 👀 I’m interested in Sports, Maths and Business
+- 🌱 I’m currently in MYP 3 IBMYP
+- 💞️ I’m looking to collaborate on nothing really...
+- 📫 How to reach me you can email me at futureroadindustries@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I play the guitar
